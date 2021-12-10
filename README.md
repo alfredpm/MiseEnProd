@@ -1,1 +1,1 @@
-Bonjour, je m'appelle Alfred.
+Bonjour, nous nous appellons Alfred et Mohammed.
