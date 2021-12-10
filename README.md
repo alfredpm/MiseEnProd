@@ -1,3 +1,2 @@
-Bonjour, nous nous appellons Alfred et Mohammed.
-aerw
-ghrdsfnl;mgtfnmdg'mndf/xc,dsv;llz
+Bonjour, nous nous appelons Alfred et Mohammed.
+Je n'aime pas les méchants virus.
